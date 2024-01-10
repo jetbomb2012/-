@@ -1,4 +1,4 @@
-# <a href="https://https://https://www.kcshining.com">光阡診所</a>
+# <a href="https://www.kcshining.com">光阡診所</a>
 
 
 # <a href="https://www.youtube.com/watch?v=8LKCkaESDI0">劉光益自介</a>
