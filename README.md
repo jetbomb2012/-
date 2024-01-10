@@ -1,4 +1,4 @@
-# <a href="https://www.kcshining.com">光阡診所</a>
+# <a href="https://www.dr-beauty.net">光阡診所</a>
 
 
 # <a href="https://www.youtube.com/watch?v=8LKCkaESDI0">劉光益自介</a>
@@ -8,4 +8,4 @@
 
 # 診所住址: 桃園市中壢區新生路117號4樓
 # 診所電話: 03-422-7171
-# 診所網址: https://www.kcshining.com
+# 診所網址: 劉光益.top
