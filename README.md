@@ -1,5 +1,5 @@
 
-# <a href="https://www.dr-beauty.net">光阡診所-所屬醫美團隊</a>
+# <a href="https://www.dr-beauty.net">光阡診所-醫美團隊</a>
 
 
 # <a href="https://www.youtube.com/watch?v=8LKCkaESDI0">劉光益醫師自介</a>
