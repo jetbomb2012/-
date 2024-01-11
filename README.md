@@ -6,6 +6,8 @@
 # <a href="https://www.youtube.com/watch?v=e92u1rKs6iI">靜脈曲張簡介</a>
 # <a href="https://www.youtube.com/watch?v=umoMYHg6jAg">什麼人會有得靜脈曲張</a>
 # <a href="https://www.youtube.com/watch?v=ScHCREHLzak">靜脈曲張六大症狀</a>
+# <a href="https://www.youtube.com/watch?v=ogxEJvNe_AQ">何種方式適合您</a>
+
 
 # 服務項目:
 # 靜脈曲張：微創靜脈雷射
