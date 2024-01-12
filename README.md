@@ -19,10 +19,6 @@
 # 高壓氧：手術後復原、增強免疫力、改善末稍循環
 
 # 血液淨化：三高、糖尿病、血管硬化
-# <audio controls>
-#  <source src="test.mp3" type="audio/mp3">
-#  <source src="test.wav" type="audio/wav">
-# </audio>
 
 # 診所住址: 
 # 桃園市中壢區新生路117號4樓
