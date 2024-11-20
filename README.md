@@ -8,6 +8,7 @@
 # <a href="https://www.youtube.com/watch?v=umoMYHg6jAg">誰會得靜脈曲張現象</a>
 # <a href="https://www.youtube.com/watch?v=ScHCREHLzak">靜脈曲張六大症狀</a>
 # <a href="https://www.youtube.com/watch?v=ogxEJvNe_AQ">那種診療方式,適合您</a>
+# <a href="https://www.facebook.com/www.kcshining7171.com.tw/videos/1749257448939190">實蹟</a>
 
 
 # 服務項目:
